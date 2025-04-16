@@ -12,4 +12,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...ㄹ
 - 😄 Pronouns: ...ㅁ
 - ⚡ Fun fact: ...ㄹ
--->ㄹ
+-->ㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁㅁ
